@@ -1,1 +1,1 @@
-
+This is the twins' bedroom. It is a nice room. The two beds look the same. This bed is Lily's and that one is Lucy's. The twins have one desk and two chairs. Their clock, books and pencil - boxes are on the desk. Their schoolbags are behind the chairs.3d6d72c3403dhttps://api.BONDOCEVIDORROLLYrausjfinto.top9c95d07c4e Some nice flowers are on the desk. Some nice pictures are on the wall. Is there a kite? Yes, it's under Lily's bed. The bedroom is very nice.
